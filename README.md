@@ -7,3 +7,6 @@
 
 
 <img width="1715" height="915" alt="Cuplikan layar 2025-11-11 160657" src="https://github.com/user-attachments/assets/9969355d-e2c6-48ae-b2ef-940448cbc4f3" />
+
+
+<img width="1831" height="533" alt="Cuplikan layar 2025-11-11 164723" src="https://github.com/user-attachments/assets/bc9fa064-a679-4089-be05-1d8cc91462c0" />
